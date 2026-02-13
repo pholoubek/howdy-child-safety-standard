@@ -33,5 +33,5 @@ This policy will be reviewed regularly and updated as needed to ensure its effec
 
 **7. Contact Information**
 
-If you have any questions or concerns about this policy, please contact us at [Your Contact Information].# howdy-child-safety-standard
+If you have any questions or concerns about this policy, please contact us at betteralphainc@gmail.com.
 Child Sexual Abuse and Exploitation (CSAE) Policy
